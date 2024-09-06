@@ -3,7 +3,7 @@ i am ice 🧊
 
 also i wanna eat snow
 
-though, to be frank, two facts about myself:
+# though, to be frank, two facts about myself:
 - Pronouns: He/Him (jokily: ice/icem)
 - :shipit:
 <!--
