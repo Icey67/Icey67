@@ -1,4 +1,4 @@
-## Hi there 👋
+## "Ice" to meet you 👋
 i am ice 🧊
 
 also i wanna eat snow
