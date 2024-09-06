@@ -2,6 +2,10 @@
 i am ice 🧊
 
 also i wanna eat snow
+
+though, to be frank, two facts about myself:
+- Pronouns: He/Him (jokily: ice/icem)
+- :shipit:
 <!--
 **Icey67/Icey67** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
