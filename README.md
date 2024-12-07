@@ -1,7 +1,7 @@
 # "Ice" to meet you 👋
 i am ice 🧊
 
-also i wanna eat snow
+also i wanna eat snow (/j of course)
 
 ### though, to be frank, two facts about myself:
 - Pronouns: He/Him (jokingly: ice/icem)
